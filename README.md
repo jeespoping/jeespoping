@@ -4,7 +4,7 @@
 
 - 👯 Hago ejercicios y me encanta crear nuevas cosas
 - 🤔 Soy una persona creativa e ingeniosa.
-- 💬 Puedes descargar mi [currículo](https://drive.google.com/file/d/1VFllt5Xjp-FowmW6dPPTxJGzUozouqe3/view?usp=sharing)
+- 💬 Puedes descargar mi [currículo](https://universidadmag-my.sharepoint.com/:b:/g/personal/jesuslopezef_unimagdalena_edu_co/EedHMOjLRwRNli2rAg5_laUBzBlmpFILoL5yvg0Xfi5wYQ?e=VdPFzT)
 
 ## ¡Contáctame! 
 [<img src="http://www.marketing-branding.cl/wp-content/uploads/2014/02/linkedin-logo-marketingbuilding.png" width="30px">](https://www.linkedin.com/in/jesus-eduardo-lopez-florez-892361219/)
